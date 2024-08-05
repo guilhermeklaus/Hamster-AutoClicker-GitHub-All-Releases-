@@ -1,0 +1,1 @@
+# Hamster-AutoClicker-GitHub-All-Releases-
